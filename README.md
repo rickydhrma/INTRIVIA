@@ -12,7 +12,4 @@ Asikin dah, semoga lebih asik
 Asik banget, semoga makin asik banget
 
 ## Harapan Kuliah 
-[Tulis harapan kamu di sini] 
-
-## Harapan Kuliah 
 cepetan kelar intriv, baru seru ngampusnya
